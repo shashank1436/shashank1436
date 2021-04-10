@@ -2,9 +2,7 @@
 
 [![Shashank's github stats](https://github-readme-stats.vercel.app/api?username=shashank1436&count_private=true&theme=white&show_icons=true)](https://github.com/shashank1436)  
 
-- 🤔 About me?
-- 🤪 A big noob with small knowledge.
-- 😂 I'm just a simple person like all :D
+- Creating life, That i love 💙
 
 ## How to reach me 📫: 
 - Get in touch via <a href="https://t.me/jennifer1436">Telegram</a>
